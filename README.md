@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NahianArafat
+- 👀 I’m interested in playing with finance, developing new concepts and citation, playing music, reading books, having good foods, and unlimited <3 
+- 🌱 I’m currently learning making applications and managing database with taking major as a finance
+- 💞️ I’m looking to collaborate on making huge application both on PC and Mobile/ Tablet to provide a best financial consulting section.
+- 📫 How to reach me? Mail -MohammadNahianArafat@outlook.com
+- 😄 Pronouns: He/Him/His
+- ⚡ Fun fact: I love to spend time alone but in internet I love to make history not story :)
